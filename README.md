@@ -1,2 +1,1 @@
-# https-pastebin.com-Y1eKPCK4-MobbyV1-Script
-https://pastebin.com/Y1eKPCK4-MobbyV1-Script
+DM ME ON DISCORD Kairuu#1392
